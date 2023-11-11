@@ -5,6 +5,7 @@ Born in Bandung, 45 years ago, Padjadjaran University Physics 1997 to 2002. Acti
 Professional Experience, 7 Finance Companies, 1 ICT company and 3 Business and Strategic Management Consulting Companies. Expertise: Sales, Marketing, Business Strategy, Credit and Collection for 21 years.
 
 **Still active :**
+
 • CEO at IndoSLF Consultant
 • Marketing Director Total Result Consultant
 • Marketing Director at PAN Consultant
