@@ -4,14 +4,21 @@ Born in Bandung, 45 years ago, Padjadjaran University Physics 1997 to 2002. Acti
 
 Professional Experience, 7 Finance Companies, 1 ICT company and 3 Business and Strategic Management Consulting Companies. Expertise: Sales, Marketing, Business Strategy, Credit and Collection for 21 years.
 
-**Still active :**
 
+## **Still active :**
 • CEO at IndoSLF Consultant
+
 • Marketing Director Total Result Consultant
+
 • Marketing Director at PAN Consultant
+
 • Assisting Business Units in KST and Padjadjaran University Finder in the Business and Marketing Strategic section
+
 • Founder and Chief at Yellow Earth Foundation
+
 • Has several Retail Businesses, in the Field of Fashion and Technology.
+
+
 
 ## **My Data**
 | |  |  |
