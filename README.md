@@ -12,7 +12,7 @@ Professional Experience, 7 Finance Companies, 1 ICT company and 3 Business and S
 
 • Marketing Director at PAN Consultant
 
-• Assisting Business Units in KST and Padjadjaran University Finder in the Business and Marketing Strategic section
+• Chief Business and Marketing Strategic at Finder Center of excellence Padjadjaran University
 
 • Founder and Chief at Yellow Earth Foundation
 
